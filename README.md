@@ -37,7 +37,4 @@
 - 📸 TikTok: leticiacrds_  
 - 📷 Instagram: [@leticiavitor_](https://www.instagram.com/leticiavitor_?igsh=MTc5cjUyMjNqc2kzZA==)  
 
----
-
-🤍 Feito com carinho por <strong>Maria Leticia</strong> 🤍
 </p>
